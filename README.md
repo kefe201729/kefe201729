@@ -2,6 +2,9 @@
 
  I’m currently studying in imperial college right now.  I’m looking to collaborate on the assignment for this course. If you have any question, feel free to ask me. Email below: <kl1625@ic.ac.uk>
 
- I'm a crazy fan of Arsenal. I am Yilin Du, i like you 
+ I'm a crazy fan of Arsenal. 
+ 
+ -------
+ last updated: 2025-09-30
 
  
